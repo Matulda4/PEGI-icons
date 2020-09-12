@@ -1,1 +1,0 @@
-# PEGI-icons
